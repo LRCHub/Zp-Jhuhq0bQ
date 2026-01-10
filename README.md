@@ -1,0 +1,95 @@
+# BABYMONSTER – DRIP
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+When I dress,
+I don't think so much
+I could be the G.O.A.T,
+I don't need too much
+I'ma set a goal,
+I'ma eat that lunch
+Baby, so cold,
+get that ice cream truck
+Uh, 찌릿찌릿 끼리끼리
+놀아볼까
+Kitty, kitty, yeah, we gonna
+run this town
+Hittin' me up
+'cause I got what they like
+Baby, got no chance,
+better hit that dance
+Mmm, na-na-na,
+I'll be there, 고민하지 마
+Uh, na-na-na,
+I'll be there, 망설이지 마
+But you don't know 'bout me
+Yeah, yeah,
+you gon' know 'bout me, boy
+아름다운 별들이 빛나는 밤이야
+Mmm, what you say?
+끝없는 가치,
+you know it's all me
+Got that, ooh, what you say?
+Are you ready?
+Set, turn on the lights
+Baby, got passion, ambition,
+난 보란 듯이
+Look at that, 온몸으로
+느끼는 내 몸짓
+Baby, got drip,
+drip, drip, drip
+Baby, got drip,
+drip, drip, drip
+Brrah, ASA, ayy
+Let 'em out,
+monster, monster, monster
+came to conquer
+Baby, holla, what's up?
+We the best, the rest confess,
+we blessed
+판을 백팔십도 바꿔
+Y to the G,
+no copy, no knock off
+Bet on my life,
+this pitch I'm gon' walk-off
+MONSTIEZ,
+꽉 잡아, hold tight
+끝까지 밟아,
+you know we gon' ride
+Mmm, na-na-na,
+I'll be there, 고민하지 마
+Uh, na-na-na,
+I'll be there, 망설이지 마
+But you don't know 'bout me
+Yeah, yeah,
+you gon' know 'bout me, boy
+아름다운 별들이 빛나는 밤이야
+Mmm, what you say?
+끝없는 가치,
+you know it's all me
+Got that, ooh, what you say?
+Are you ready?
+Set, turn on the lights
+Baby, got passion, ambition,
+난 보란 듯이
+Look at that, 온몸으로
+느끼는 내 몸짓
+Baby, got drip,
+drip, drip, drip
+Baby, got drip,
+drip, drip, drip
+Uh, 가끔 쓰러진대도
+I'ma shine as bright as
+diamonds, say my name
+다시 일어나
+Now watch me do it all again
+Baby, got drip, drip, drip
+Baby, got, baby, got, baby, got
+Drip, drip, drip
+You know we got, got that drip
+Baby, got drip, drip, drip
+Baby, got, baby, got, baby, got
+Drip, drip, drip
+Got that drip, yeah
+```
